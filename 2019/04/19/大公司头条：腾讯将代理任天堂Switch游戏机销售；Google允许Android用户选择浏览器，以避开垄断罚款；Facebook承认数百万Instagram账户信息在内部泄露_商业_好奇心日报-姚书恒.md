@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：腾讯将代理任天堂 Switch 游戏机销售；Google 允许 Android 用户选择浏览器，以避开垄断罚款；Facebook 承认数百万 Instagram 账户信息在内部泄露_商业_好奇心日报-姚书恒](https://www.qdaily.com/articles/63088.html)
+WebArchive归档链接：[大公司头条：腾讯将代理任天堂 Switch 游戏机销售；Google 允许 Android 用户选择浏览器，以避开垄断罚款；Facebook 承认数百万 Instagram 账户信息在内部泄露_商业_好奇心日报-姚书恒](http://web.archive.org/web/20190419021815/https://www.qdaily.com/articles/63088.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xurkwt88j30u03ate81)

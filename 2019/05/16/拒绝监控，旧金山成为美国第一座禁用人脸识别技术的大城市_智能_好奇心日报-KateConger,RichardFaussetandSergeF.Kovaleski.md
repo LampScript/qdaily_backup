@@ -1,1 +1,3 @@
+好奇心原文链接：[拒绝监控，旧金山成为美国第一座禁用人脸识别技术的大城市_智能_好奇心日报-Kate Conger, Richard Fausset and Serge F. Kovaleski](https://www.qdaily.com/articles/63805.html)
+WebArchive归档链接：[拒绝监控，旧金山成为美国第一座禁用人脸识别技术的大城市_智能_好奇心日报-Kate Conger, Richard Fausset and Serge F. Kovaleski](http://web.archive.org/web/20190517013248/https://www.qdaily.com/articles/63805.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3yb9o794qj30u05q6e82)
