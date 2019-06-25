@@ -1,1 +1,3 @@
+好奇心原文链接：[多款应用侵犯儿童隐私，Google 和 Twitter 或许又有麻烦_智能_好奇心日报-Jennifer Valentino Devries, Natasha Singer, Aaron Krolik and Michael H. Keller](https://www.qdaily.com/articles/56424.html)
+WebArchive归档链接：[多款应用侵犯儿童隐私，Google 和 Twitter 或许又有麻烦_智能_好奇心日报-Jennifer Valentino Devries, Natasha Singer, Aaron Krolik and Michael H. Keller](http://web.archive.org/web/20180920110610/http://www.qdaily.com:80/articles/56424.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3ydakww9oj30u071le83)

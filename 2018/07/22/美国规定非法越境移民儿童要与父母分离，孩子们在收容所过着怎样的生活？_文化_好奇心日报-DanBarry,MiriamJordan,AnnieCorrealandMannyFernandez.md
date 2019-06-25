@@ -1,1 +1,3 @@
+好奇心原文链接：[美国规定非法越境移民儿童要与父母分离，孩子们在收容所过着怎样的生活？_文化_好奇心日报-Dan Barry, Miriam Jordan, Annie Correal and Manny Fernandez](https://www.qdaily.com/articles/55409.html)
+WebArchive归档链接：[美国规定非法越境移民儿童要与父母分离，孩子们在收容所过着怎样的生活？_文化_好奇心日报-Dan Barry, Miriam Jordan, Annie Correal and Manny Fernandez](http://web.archive.org/web/20181001030845/http://www.qdaily.com:80/articles/55409.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y0x8o83sj30u08cqkjn)

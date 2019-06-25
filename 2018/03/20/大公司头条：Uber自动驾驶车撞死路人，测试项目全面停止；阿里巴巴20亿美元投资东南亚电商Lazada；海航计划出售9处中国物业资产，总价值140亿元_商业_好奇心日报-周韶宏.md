@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：Uber 自动驾驶车撞死路人，测试项目全面停止；阿里巴巴 20 亿美元投资东南亚电商 Lazada；海航计划出售 9 处中国物业资产，总价值 140 亿元_商业_好奇心日报-周韶宏](https://www.qdaily.com/articles/51270.html)
+WebArchive归档链接：[大公司头条：Uber 自动驾驶车撞死路人，测试项目全面停止；阿里巴巴 20 亿美元投资东南亚电商 Lazada；海航计划出售 9 处中国物业资产，总价值 140 亿元_商业_好奇心日报-周韶宏](http://web.archive.org/web/20180522220623/http://www.qdaily.com:80/articles/51270.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y2mzn790j30u03roe81)

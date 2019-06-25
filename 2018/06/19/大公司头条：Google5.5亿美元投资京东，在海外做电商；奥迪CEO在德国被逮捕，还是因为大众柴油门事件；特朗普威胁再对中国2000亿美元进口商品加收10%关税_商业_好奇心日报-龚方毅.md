@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：Google 5.5 亿美元投资京东，在海外做电商；奥迪 CEO 在德国被逮捕，还是因为大众柴油门事件；特朗普威胁再对中国 2000 亿美元进口商品加收 10% 关税_商业_好奇心日报-龚方毅](https://www.qdaily.com/articles/54387.html)
+WebArchive归档链接：[大公司头条：Google 5.5 亿美元投资京东，在海外做电商；奥迪 CEO 在德国被逮捕，还是因为大众柴油门事件；特朗普威胁再对中国 2000 亿美元进口商品加收 10% 关税_商业_好奇心日报-龚方毅](http://web.archive.org/web/20180924130605/http://www.qdaily.com:80/articles/54387.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3yhj69srrj30u04qyu0x)

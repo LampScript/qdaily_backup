@@ -1,1 +1,3 @@
+好奇心原文链接：[应对交通拥堵，伦敦、新加坡、斯德哥尔摩都是怎么做的？_文化_好奇心日报-Christina Anderson, Winnie Hu, Weiyi Lim and Anna Schaverien](https://www.qdaily.com/articles/50657.html)
+WebArchive归档链接：[应对交通拥堵，伦敦、新加坡、斯德哥尔摩都是怎么做的？_文化_好奇心日报-Christina Anderson, Winnie Hu, Weiyi Lim and Anna Schaverien](http://web.archive.org/web/20180315003323/http://www.qdaily.com:80/articles/50657.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3ycnpxfgaj30u07ttqv7)

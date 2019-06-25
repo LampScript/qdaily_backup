@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：苹果利润增长 32%，高价 iPhone 卖得更多了；爱奇艺二季度亏损加倍，百度负担了 52 亿元成本；深圳发布楼市新政，个人新购房后 3 年内不得卖出_商业_好奇心日报-姚书恒](https://www.qdaily.com/articles/55816.html)
+WebArchive归档链接：[大公司头条：苹果利润增长 32%，高价 iPhone 卖得更多了；爱奇艺二季度亏损加倍，百度负担了 52 亿元成本；深圳发布楼市新政，个人新购房后 3 年内不得卖出_商业_好奇心日报-姚书恒](http://web.archive.org/web/20181006071726/http://www.qdaily.com:80/articles/55816.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3yi3yq3q2j30u047iu0x)

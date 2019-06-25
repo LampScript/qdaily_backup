@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：小米降低上市估值目标，从 1000 亿美元变成 700-800 亿；Google 发布新 Android 系统，允许用户限制每个应用每天用多久；京东发财报，收入增长两年内最低_商业_好奇心日报-唐云路](https://www.qdaily.com/articles/52986.html)
+WebArchive归档链接：[大公司头条：小米降低上市估值目标，从 1000 亿美元变成 700-800 亿；Google 发布新 Android 系统，允许用户限制每个应用每天用多久；京东发财报，收入增长两年内最低_商业_好奇心日报-唐云路](http://web.archive.org/web/20180916062156/http://www.qdaily.com:80/articles/52986.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3ykdjlrz4j30u04ifu0x)

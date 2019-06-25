@@ -1,1 +1,3 @@
+好奇心原文链接：[Google 与五角大楼的军事 AI 合作是怎么变成一场危机的？_智能_好奇心日报-Scott Shane, Cade Metz and Daisuke Wakabayashi](https://www.qdaily.com/articles/53821.html)
+WebArchive归档链接：[Google 与五角大楼的军事 AI 合作是怎么变成一场危机的？_智能_好奇心日报-Scott Shane, Cade Metz and Daisuke Wakabayashi](http://web.archive.org/web/20181009090915/http://www.qdaily.com:80/articles/53821.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xx6dz1aij30u05ub7wi)

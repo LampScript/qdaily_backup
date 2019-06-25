@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：沃尔玛商谈 150 亿美元控股印度第一大电商 Flipkart；奥林巴斯将关闭深圳相机工厂，搬去越南；环球影城在北京投资翻倍至 65 亿美元，超过了上海迪士尼_智能_好奇心日报-唐云路](https://www.qdaily.com/articles/52936.html)
+WebArchive归档链接：[大公司头条：沃尔玛商谈 150 亿美元控股印度第一大电商 Flipkart；奥林巴斯将关闭深圳相机工厂，搬去越南；环球影城在北京投资翻倍至 65 亿美元，超过了上海迪士尼_智能_好奇心日报-唐云路](http://web.archive.org/web/20180916054215/http://www.qdaily.com:80/articles/52936.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y69iqwdaj30u049knpd)

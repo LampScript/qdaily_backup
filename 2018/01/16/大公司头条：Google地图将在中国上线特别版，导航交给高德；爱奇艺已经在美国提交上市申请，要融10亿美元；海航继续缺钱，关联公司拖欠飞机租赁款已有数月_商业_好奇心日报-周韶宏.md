@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：Google 地图将在中国上线特别版，导航交给高德；爱奇艺已经在美国提交上市申请，要融 10 亿美元；海航继续缺钱，关联公司拖欠飞机租赁款已有数月_商业_好奇心日报-周韶宏](https://www.qdaily.com/articles/49238.html)
+WebArchive归档链接：[大公司头条：Google 地图将在中国上线特别版，导航交给高德；爱奇艺已经在美国提交上市申请，要融 10 亿美元；海航继续缺钱，关联公司拖欠飞机租赁款已有数月_商业_好奇心日报-周韶宏](http://web.archive.org/web/20181001155845/http://www.qdaily.com:80/articles/49238.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xyftolc4j30u0487npd)

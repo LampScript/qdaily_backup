@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：亚马逊和 Google 分别组建医疗合资公司；苹果更新 MacBook Pro，提升性能但外形没变化；路透称中国可能很快批准进口印度仿制药_商业_好奇心日报-朱凯麟](https://www.qdaily.com/articles/55184.html)
+WebArchive归档链接：[大公司头条：亚马逊和 Google 分别组建医疗合资公司；苹果更新 MacBook Pro，提升性能但外形没变化；路透称中国可能很快批准进口印度仿制药_商业_好奇心日报-朱凯麟](http://web.archive.org/web/20180918190446/http://www.qdaily.com:80/articles/55184.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3yhuqgwmyj30u04xx4qq)

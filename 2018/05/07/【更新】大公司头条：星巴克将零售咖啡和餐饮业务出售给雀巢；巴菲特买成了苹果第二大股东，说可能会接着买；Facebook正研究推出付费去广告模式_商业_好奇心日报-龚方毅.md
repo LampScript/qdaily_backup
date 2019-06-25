@@ -1,1 +1,3 @@
+好奇心原文链接：[【更新】大公司头条：星巴克将零售咖啡和餐饮业务出售给雀巢；巴菲特买成了苹果第二大股东，说可能会接着买；Facebook 正研究推出付费去广告模式_商业_好奇心日报-龚方毅](https://www.qdaily.com/articles/52894.html)
+WebArchive归档链接：[【更新】大公司头条：星巴克将零售咖啡和餐饮业务出售给雀巢；巴菲特买成了苹果第二大股东，说可能会接着买；Facebook 正研究推出付费去广告模式_商业_好奇心日报-龚方毅](http://web.archive.org/web/20180916052718/http://www.qdaily.com:80/articles/52894.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y686zfopj30u04huu0x)

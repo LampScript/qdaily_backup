@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：百度筹备 CDR，将先于阿里和京东回国上市；家乐福与 Google 合作通过智能音箱在法国卖食品杂货；苹果更新保修条款，海外 iPhone 在中国联保_商业_好奇心日报-周韶宏](https://www.qdaily.com/articles/54175.html)
+WebArchive归档链接：[大公司头条：百度筹备 CDR，将先于阿里和京东回国上市；家乐福与 Google 合作通过智能音箱在法国卖食品杂货；苹果更新保修条款，海外 iPhone 在中国联保_商业_好奇心日报-周韶宏](http://web.archive.org/web/20180918185102/http://www.qdaily.com:80/articles/54175.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3yhhixljoj30u04bue81)

@@ -1,1 +1,3 @@
+好奇心原文链接：[时尚设计师Kate Spade去世，她的名字是伶俐手袋的代名词_时尚_好奇心日报-Jonah Engel Bromwich, Vanessa Friedman and Matthew Schneier](https://www.qdaily.com/articles/53989.html)
+WebArchive归档链接：[时尚设计师Kate Spade去世，她的名字是伶俐手袋的代名词_时尚_好奇心日报-Jonah Engel Bromwich, Vanessa Friedman and Matthew Schneier](http://web.archive.org/web/20181017130314/http://www.qdaily.com:80/articles/53989.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xxpz2ccjj30u053zqv6)

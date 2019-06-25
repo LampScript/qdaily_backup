@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：海航计划出售祥鹏航空，准备将后者 60%股份卖给东航；苹果发布新 iPad Pro，另外终于升级了 Air；Facebook 发布财报，营收与用户增长都不及预期_商业_好奇心日报-唐云路](https://www.qdaily.com/articles/57836.html)
+WebArchive归档链接：[大公司头条：海航计划出售祥鹏航空，准备将后者 60%股份卖给东航；苹果发布新 iPad Pro，另外终于升级了 Air；Facebook 发布财报，营收与用户增长都不及预期_商业_好奇心日报-唐云路](http://web.archive.org/web/20181031023525/https://www.qdaily.com/articles/57836.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3yeba7859j30u03ege81)

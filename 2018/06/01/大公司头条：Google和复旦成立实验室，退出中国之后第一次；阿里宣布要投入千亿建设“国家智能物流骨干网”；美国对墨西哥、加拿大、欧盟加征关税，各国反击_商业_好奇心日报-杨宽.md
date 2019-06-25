@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：Google 和复旦成立实验室，退出中国之后第一次；阿里宣布要投入千亿建设“国家智能物流骨干网”；美国对墨西哥、加拿大、欧盟加征关税，各国反击_商业_好奇心日报-杨宽](https://www.qdaily.com/articles/53842.html)
+WebArchive归档链接：[大公司头条：Google 和复旦成立实验室，退出中国之后第一次；阿里宣布要投入千亿建设“国家智能物流骨干网”；美国对墨西哥、加拿大、欧盟加征关税，各国反击_商业_好奇心日报-杨宽](http://web.archive.org/web/20181007181605/http://www.qdaily.com:80/articles/53842.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3yba3qg1aj30u04sz4qq)

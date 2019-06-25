@@ -1,1 +1,3 @@
+好奇心原文链接：[性骚扰指控蔓延到了时尚摄影行业，多位著名摄影师在指控之列_时尚_好奇心日报-Jacob Bernstein, Matthew Schneier and Vanessa Friedman](https://www.qdaily.com/articles/49201.html)
+WebArchive归档链接：[性骚扰指控蔓延到了时尚摄影行业，多位著名摄影师在指控之列_时尚_好奇心日报-Jacob Bernstein, Matthew Schneier and Vanessa Friedman](http://web.archive.org/web/20181002170707/http://www.qdaily.com:80/articles/49201.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xycu4t6zj30u0amxu10)
