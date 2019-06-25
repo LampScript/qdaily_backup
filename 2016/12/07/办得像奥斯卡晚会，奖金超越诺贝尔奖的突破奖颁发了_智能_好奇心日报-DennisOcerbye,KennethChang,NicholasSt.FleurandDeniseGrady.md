@@ -1,1 +1,3 @@
+好奇心原文链接：[办得像奥斯卡晚会，奖金超越诺贝尔奖的突破奖颁发了_智能_好奇心日报-Dennis Ocerbye, Kenneth Chang, Nicholas St. Fleur and Denise Grady](https://www.qdaily.com/articles/35304.html)
+WebArchive归档链接：[办得像奥斯卡晚会，奖金超越诺贝尔奖的突破奖颁发了_智能_好奇心日报-Dennis Ocerbye, Kenneth Chang, Nicholas St. Fleur and Denise Grady](http://web.archive.org/web/20171106033242/http://www.qdaily.com:80/articles/35304.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y7igw2s3j30u09eru11)

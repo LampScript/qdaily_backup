@@ -1,1 +1,3 @@
+好奇心原文链接：[这位即将上任的美国总统生意遍布全球，它们可能带来哪些影响？_文化_好奇心日报-Richard C. Paddock, Eric Lipton, Ellen Barry, Rod Nordland, Danny Hakim, Simson Romero, Eric Lipton, Susanne Craig](https://www.qdaily.com/articles/35063.html)
+WebArchive归档链接：[这位即将上任的美国总统生意遍布全球，它们可能带来哪些影响？_文化_好奇心日报-Richard C. Paddock, Eric Lipton, Ellen Barry, Rod Nordland, Danny Hakim, Simson Romero, Eric Lipton, Susanne Craig](http://web.archive.org/web/20170531080652/http://www.qdaily.com:80/articles/35063.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y751y1ouj30vy0hfq9b)

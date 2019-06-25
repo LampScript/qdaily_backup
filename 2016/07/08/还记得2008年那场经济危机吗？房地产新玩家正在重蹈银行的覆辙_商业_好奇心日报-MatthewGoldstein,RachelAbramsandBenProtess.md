@@ -1,1 +1,3 @@
+好奇心原文链接：[还记得 2008 年那场经济危机吗？房地产新玩家正在重蹈银行的覆辙_商业_好奇心日报-Matthew Goldstein, Rachel Abrams and Ben Protess](https://www.qdaily.com/articles/29061.html)
+WebArchive归档链接：[还记得 2008 年那场经济危机吗？房地产新玩家正在重蹈银行的覆辙_商业_好奇心日报-Matthew Goldstein, Rachel Abrams and Ben Protess](http://web.archive.org/web/20160919112200/http://www.qdaily.com:80/articles/29061.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3x90vkj2tj30s6cmw4qu)
