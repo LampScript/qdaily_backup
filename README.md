@@ -9,14 +9,9 @@
 - [2018年目录](./README-2018.md)
 - [2019年目录](./README-2019.md)
 
-```
-暂时先给个百度云下载链接
-https://pan.baidu.com/s/1bDr6fenHfzm4m-WG7LNwrQ
-```
-
 ---
 
-今天刚正式得知好奇心收缩以求生存通告[关于好奇心日报|九点，我们会出现在镇上](http://notch.qdaily.com/mobile/posts/5059.html?from=timeline&isappinstalled=0) 
+[关于好奇心日报|九点，我们会出现在镇上](http://notch.qdaily.com/mobile/posts/5059.html?from=timeline&isappinstalled=0) 
 
 如果这是我们当代的悲哀，我想尽力阻止悲剧的发生。
 
