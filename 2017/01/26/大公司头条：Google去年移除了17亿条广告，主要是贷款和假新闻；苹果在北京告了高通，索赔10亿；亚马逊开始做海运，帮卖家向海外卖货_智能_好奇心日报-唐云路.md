@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：Google 去年移除了 17 亿条广告，主要是贷款和假新闻；苹果在北京告了高通，索赔 10 亿；亚马逊开始做海运，帮卖家向海外卖货_智能_好奇心日报-唐云路](https://www.qdaily.com/articles/37279.html)
+WebArchive归档链接：[大公司头条：Google 去年移除了 17 亿条广告，主要是贷款和假新闻；苹果在北京告了高通，索赔 10 亿；亚马逊开始做海运，帮卖家向海外卖货_智能_好奇心日报-唐云路](http://web.archive.org/web/20170204213501/http://www.qdaily.com:80/articles/37279.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xsku0ws4j30u03e9e81)

@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：万达 AMC 9.3 亿美元收购北欧最大院线集团；富士康投资了摩拜单车，今年要为其生产 560 万台车；滴滴将在春节期间取消出租车调度费_智能_好奇心日报-张智伟](https://www.qdaily.com/articles/37161.html)
+WebArchive归档链接：[大公司头条：万达 AMC 9.3 亿美元收购北欧最大院线集团；富士康投资了摩拜单车，今年要为其生产 560 万台车；滴滴将在春节期间取消出租车调度费_智能_好奇心日报-张智伟](http://web.archive.org/web/20170130164024/http://www.qdaily.com:80/articles/37161.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xsci28zjj30u03mfe81)

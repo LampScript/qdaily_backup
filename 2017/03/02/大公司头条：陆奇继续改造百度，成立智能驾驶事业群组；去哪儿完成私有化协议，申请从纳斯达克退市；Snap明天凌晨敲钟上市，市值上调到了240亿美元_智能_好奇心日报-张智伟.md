@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：陆奇继续改造百度，成立智能驾驶事业群组；去哪儿完成私有化协议，申请从纳斯达克退市；Snap 明天凌晨敲钟上市，市值上调到了 240 亿美元_智能_好奇心日报-张智伟](https://www.qdaily.com/articles/38320.html)
+WebArchive归档链接：[大公司头条：陆奇继续改造百度，成立智能驾驶事业群组；去哪儿完成私有化协议，申请从纳斯达克退市；Snap 明天凌晨敲钟上市，市值上调到了 240 亿美元_智能_好奇心日报-张智伟](http://web.archive.org/web/20170727054927/http://www.qdaily.com:80/articles/38320.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3wm8wyuijj30u03bv7wh)

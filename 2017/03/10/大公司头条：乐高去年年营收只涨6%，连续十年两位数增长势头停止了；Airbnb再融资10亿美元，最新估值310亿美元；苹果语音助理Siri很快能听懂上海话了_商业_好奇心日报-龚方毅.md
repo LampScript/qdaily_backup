@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：乐高去年年营收只涨 6%，连续十年两位数增长势头停止了；Airbnb 再融资 10 亿美元，最新估值 310 亿美元；苹果语音助理 Siri 很快能听懂上海话了_商业_好奇心日报-龚方毅](https://www.qdaily.com/articles/38624.html)
+WebArchive归档链接：[大公司头条：乐高去年年营收只涨 6%，连续十年两位数增长势头停止了；Airbnb 再融资 10 亿美元，最新估值 310 亿美元；苹果语音助理 Siri 很快能听懂上海话了_商业_好奇心日报-龚方毅](http://web.archive.org/web/20180123205306/http://www.qdaily.com:80/articles/38624.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3woivp72wj30u0415hdt)

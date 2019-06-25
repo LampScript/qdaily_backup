@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：工业部规定，2019 年开始电动车必须占车厂生产 10%；14 部委发布餐饮行业新规，外卖必须有实体店；宜家收购众包平台 TaskRabbit，可能提供家具安装服务_商业_好奇心日报-徐弢](https://www.qdaily.com/articles/45666.html)
+WebArchive归档链接：[大公司头条：工业部规定，2019 年开始电动车必须占车厂生产 10%；14 部委发布餐饮行业新规，外卖必须有实体店；宜家收购众包平台 TaskRabbit，可能提供家具安装服务_商业_好奇心日报-徐弢](http://web.archive.org/web/20181011141645/http://www.qdaily.com:80/articles/45666.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y06b6l7bj30u03wynpd)

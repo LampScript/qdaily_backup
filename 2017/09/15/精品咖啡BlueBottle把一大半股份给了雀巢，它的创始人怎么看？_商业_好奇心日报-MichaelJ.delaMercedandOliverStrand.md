@@ -1,1 +1,3 @@
+好奇心原文链接：[精品咖啡 Blue Bottle 把一大半股份给了雀巢，它的创始人怎么看？_商业_好奇心日报-Michael J. de la Merced and Oliver Strand](https://www.qdaily.com/articles/45209.html)
+WebArchive归档链接：[精品咖啡 Blue Bottle 把一大半股份给了雀巢，它的创始人怎么看？_商业_好奇心日报-Michael J. de la Merced and Oliver Strand](http://web.archive.org/web/20180716140753/http://www.qdaily.com:80/articles/45209.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xz6tr1u8j30u06wpe83)

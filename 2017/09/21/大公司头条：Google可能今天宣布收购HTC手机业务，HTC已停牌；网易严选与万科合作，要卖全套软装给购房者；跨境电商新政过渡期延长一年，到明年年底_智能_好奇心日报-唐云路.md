@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：Google 可能今天宣布收购 HTC 手机业务，HTC 已停牌；网易严选与万科合作，要卖全套软装给购房者；跨境电商新政过渡期延长一年，到明年年底_智能_好奇心日报-唐云路](https://www.qdaily.com/articles/45392.html)
+WebArchive归档链接：[大公司头条：Google 可能今天宣布收购 HTC 手机业务，HTC 已停牌；网易严选与万科合作，要卖全套软装给购房者；跨境电商新政过渡期延长一年，到明年年底_智能_好奇心日报-唐云路](http://web.archive.org/web/20181006071212/http://www.qdaily.com:80/articles/45392.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xzisllyuj30u04ifu0x)

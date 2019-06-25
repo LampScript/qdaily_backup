@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：Airbnb 今日宣布中国品牌名“爱彼迎”，并在中国推出旅行体验产品；苹果发布了一款红色的 iPhone 7；英美禁止部分中东入境飞机乘客携带笔记本电脑_智能_好奇心日报-朱若淼](https://www.qdaily.com/articles/39046.html)
+WebArchive归档链接：[大公司头条：Airbnb 今日宣布中国品牌名“爱彼迎”，并在中国推出旅行体验产品；苹果发布了一款红色的 iPhone 7；英美禁止部分中东入境飞机乘客携带笔记本电脑_智能_好奇心日报-朱若淼](http://web.archive.org/web/20180123184038/http://www.qdaily.com:80/articles/39046.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3x58tjvzjj30u03rbe81)

@@ -1,1 +1,3 @@
+好奇心原文链接：[一家八口都在得州枪击案中丧生，只剩86岁的祖父独自悼念_文化_好奇心日报-Shannon Sims, Julie Turkewitz and Christina Caron](https://www.qdaily.com/articles/47020.html)
+WebArchive归档链接：[一家八口都在得州枪击案中丧生，只剩86岁的祖父独自悼念_文化_好奇心日报-Shannon Sims, Julie Turkewitz and Christina Caron](http://web.archive.org/web/20180923192608/http://www.qdaily.com:80/articles/47020.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3ydbrk5i9j30u047ux6p)

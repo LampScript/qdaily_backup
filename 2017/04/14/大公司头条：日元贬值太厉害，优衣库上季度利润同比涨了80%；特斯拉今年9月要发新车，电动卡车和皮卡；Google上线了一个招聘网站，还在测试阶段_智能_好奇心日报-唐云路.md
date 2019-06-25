@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：日元贬值太厉害，优衣库上季度利润同比涨了 80%；特斯拉今年 9 月要发新车，电动卡车和皮卡；Google 上线了一个招聘网站，还在测试阶段_智能_好奇心日报-唐云路](https://www.qdaily.com/articles/39785.html)
+WebArchive归档链接：[大公司头条：日元贬值太厉害，优衣库上季度利润同比涨了 80%；特斯拉今年 9 月要发新车，电动卡车和皮卡；Google 上线了一个招聘网站，还在测试阶段_智能_好奇心日报-唐云路](http://web.archive.org/web/20170911162028/http://www.qdaily.com/articles/39785.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3yf82wxeuj30u044hnpd)

@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：Airbnb 说自己已经在盈利，明年就会上市；英特尔 153 亿美元买了给特斯拉做自动驾驶的公司；雅虎任命了新的 CEO，梅耶尔会带着 2300 万美元离开_智能_好奇心日报-唐云路](https://www.qdaily.com/articles/38762.html)
+WebArchive归档链接：[大公司头条：Airbnb 说自己已经在盈利，明年就会上市；英特尔 153 亿美元买了给特斯拉做自动驾驶的公司；雅虎任命了新的 CEO，梅耶尔会带着 2300 万美元离开_智能_好奇心日报-唐云路](http://web.archive.org/web/20170910114813/http://www.qdaily.com/articles/38762.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3wp1vnqw5j30u03c84qp)

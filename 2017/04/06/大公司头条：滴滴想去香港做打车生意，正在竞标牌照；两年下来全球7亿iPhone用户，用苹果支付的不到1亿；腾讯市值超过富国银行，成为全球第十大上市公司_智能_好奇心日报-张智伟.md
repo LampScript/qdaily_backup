@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：滴滴想去香港做打车生意，正在竞标牌照；两年下来全球 7 亿 iPhone 用户，用苹果支付的不到 1 亿；腾讯市值超过富国银行，成为全球第十大上市公司_智能_好奇心日报-张智伟](https://www.qdaily.com/articles/39515.html)
+WebArchive归档链接：[大公司头条：滴滴想去香港做打车生意，正在竞标牌照；两年下来全球 7 亿 iPhone 用户，用苹果支付的不到 1 亿；腾讯市值超过富国银行，成为全球第十大上市公司_智能_好奇心日报-张智伟](http://web.archive.org/web/20180123203032/http://www.qdaily.com:80/articles/39515.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y75738eej30u03v1kjl)

@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：ofo 投资人说，它和摩拜只有合并才有可能盈利；显示芯片公司 Imagination 5.5 亿英镑卖给中资基金，它被苹果抛弃后市值蒸发七成；星巴克可以刷支付宝了_商业_好奇心日报-徐弢](https://www.qdaily.com/articles/45508.html)
+WebArchive归档链接：[大公司头条：ofo 投资人说，它和摩拜只有合并才有可能盈利；显示芯片公司 Imagination 5.5 亿英镑卖给中资基金，它被苹果抛弃后市值蒸发七成；星巴克可以刷支付宝了_商业_好奇心日报-徐弢](http://web.archive.org/web/20180310063151/http://www.qdaily.com:80/articles/45508.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xzvh3mpej30u03tjnpd)

@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：Google 人工智能子公司去年亏 1.6 亿美元，主要成本是工资；Facebook 将人工审核政治广告；香港投资者明年买卖内地股票也要实名登记_智能_好奇心日报-龚方毅](https://www.qdaily.com/articles/45883.html)
+WebArchive归档链接：[大公司头条：Google 人工智能子公司去年亏 1.6 亿美元，主要成本是工资；Facebook 将人工审核政治广告；香港投资者明年买卖内地股票也要实名登记_智能_好奇心日报-龚方毅](http://web.archive.org/web/20180923202442/http://www.qdaily.com:80/articles/45883.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y0mfkuz5j30u02zv7wh)

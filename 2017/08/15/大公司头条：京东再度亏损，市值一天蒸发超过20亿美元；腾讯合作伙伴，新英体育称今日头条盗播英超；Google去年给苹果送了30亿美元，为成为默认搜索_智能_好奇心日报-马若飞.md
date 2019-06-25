@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：京东再度亏损，市值一天蒸发超过 20 亿美元；腾讯合作伙伴，新英体育称今日头条盗播英超；Google 去年给苹果送了 30 亿美元，为成为默认搜索_智能_好奇心日报-马若飞](https://www.qdaily.com/articles/44102.html)
+WebArchive归档链接：[大公司头条：京东再度亏损，市值一天蒸发超过 20 亿美元；腾讯合作伙伴，新英体育称今日头条盗播英超；Google 去年给苹果送了 30 亿美元，为成为默认搜索_智能_好奇心日报-马若飞](http://web.archive.org/web/20180123193040/http://www.qdaily.com:80/articles/44102.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3yh3ioxqsj30u04lyx6p)

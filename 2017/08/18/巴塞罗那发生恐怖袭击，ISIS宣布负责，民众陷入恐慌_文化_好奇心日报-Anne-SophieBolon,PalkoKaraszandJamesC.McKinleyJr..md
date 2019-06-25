@@ -1,1 +1,3 @@
+好奇心原文链接：[巴塞罗那发生恐怖袭击，ISIS 宣布负责，民众陷入恐慌_文化_好奇心日报-Anne-Sophie Bolon, Palko Karasz and James C. McKinley Jr.](https://www.qdaily.com/articles/44223.html)
+WebArchive归档链接：[巴塞罗那发生恐怖袭击，ISIS 宣布负责，民众陷入恐慌_文化_好奇心日报-Anne-Sophie Bolon, Palko Karasz and James C. McKinley Jr.](http://web.archive.org/web/20190623190154/https://www.qdaily.com/articles/44223.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3yayodm61j30u071kb2c)

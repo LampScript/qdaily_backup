@@ -1,1 +1,3 @@
+好奇心原文链接：[美国让耶路撒冷冲突再起，这里是它的百年历史回顾_文化_好奇心日报-Mona Boshnaq, Sewell Chan, Irit Pazner Garshowitz and Gaia Tripoli](https://www.qdaily.com/articles/48036.html)
+WebArchive归档链接：[美国让耶路撒冷冲突再起，这里是它的百年历史回顾_文化_好奇心日报-Mona Boshnaq, Sewell Chan, Irit Pazner Garshowitz and Gaia Tripoli](http://web.archive.org/web/20180923184055/http://www.qdaily.com:80/articles/48036.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xuitk10uj30u0archdy)

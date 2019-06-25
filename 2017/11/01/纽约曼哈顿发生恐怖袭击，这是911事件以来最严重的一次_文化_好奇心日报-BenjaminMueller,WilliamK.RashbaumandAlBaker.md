@@ -1,1 +1,3 @@
+好奇心原文链接：[纽约曼哈顿发生恐怖袭击，这是 911 事件以来最严重的一次_文化_好奇心日报-Benjamin Mueller, William K. Rashbaum and Al Baker](https://www.qdaily.com/articles/46751.html)
+WebArchive归档链接：[纽约曼哈顿发生恐怖袭击，这是 911 事件以来最严重的一次_文化_好奇心日报-Benjamin Mueller, William K. Rashbaum and Al Baker](http://web.archive.org/web/20181017134759/http://www.qdaily.com:80/articles/46751.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y2ovb8drj30u04vpkjm)

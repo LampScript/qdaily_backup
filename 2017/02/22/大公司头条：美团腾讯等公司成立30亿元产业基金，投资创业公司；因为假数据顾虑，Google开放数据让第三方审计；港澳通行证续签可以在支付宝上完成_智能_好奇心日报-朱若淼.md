@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：美团腾讯等公司成立 30 亿元产业基金，投资创业公司；因为假数据顾虑，Google 开放数据让第三方审计；港澳通行证续签可以在支付宝上完成_智能_好奇心日报-朱若淼](https://www.qdaily.com/articles/38043.html)
+WebArchive归档链接：[大公司头条：美团腾讯等公司成立 30 亿元产业基金，投资创业公司；因为假数据顾虑，Google 开放数据让第三方审计；港澳通行证续签可以在支付宝上完成_智能_好奇心日报-朱若淼](http://web.archive.org/web/20170225000521/http://www.qdaily.com:80/articles/38043.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3wkjbicl8j30u046re81)

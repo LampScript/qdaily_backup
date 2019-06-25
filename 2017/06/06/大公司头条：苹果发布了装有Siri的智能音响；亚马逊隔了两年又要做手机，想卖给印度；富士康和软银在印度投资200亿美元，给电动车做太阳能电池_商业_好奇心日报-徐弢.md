@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：苹果发布了装有 Siri 的智能音响；亚马逊隔了两年又要做手机，想卖给印度；富士康和软银在印度投资 200 亿美元，给电动车做太阳能电池_商业_好奇心日报-徐弢](https://www.qdaily.com/articles/41672.html)
+WebArchive归档链接：[大公司头条：苹果发布了装有 Siri 的智能音响；亚马逊隔了两年又要做手机，想卖给印度；富士康和软银在印度投资 200 亿美元，给电动车做太阳能电池_商业_好奇心日报-徐弢](http://web.archive.org/web/20170808020745/http://www.qdaily.com:80/articles/41672.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xsluv53kj30u037jb29)
