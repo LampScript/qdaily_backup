@@ -1,1 +1,3 @@
+好奇心原文链接：[设计师大集合，告诉你2016年的春天到底什么会流行（一）_时尚_好奇心日报-Matthew Schneier Vanessa Friedman  Alexandra Jacobs](https://www.qdaily.com/articles/10572.html)
+WebArchive归档链接：[设计师大集合，告诉你2016年的春天到底什么会流行（一）_时尚_好奇心日报-Matthew Schneier Vanessa Friedman  Alexandra Jacobs](http://web.archive.org/web/20190623160841/https://www.qdaily.com/articles/10572.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3wfvm4gkbj30u0ciekjm)

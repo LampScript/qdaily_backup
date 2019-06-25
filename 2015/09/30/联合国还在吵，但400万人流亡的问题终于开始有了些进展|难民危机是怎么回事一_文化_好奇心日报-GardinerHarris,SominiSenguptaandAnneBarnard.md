@@ -1,1 +1,3 @@
+好奇心原文链接：[联合国还在吵，但 400 万人流亡的问题终于开始有了些进展 | 难民危机是怎么回事 一_文化_好奇心日报-Gardiner Harris, Somini Sengupta and Anne Barnard](https://www.qdaily.com/articles/15642.html)
+WebArchive归档链接：[联合国还在吵，但 400 万人流亡的问题终于开始有了些进展 | 难民危机是怎么回事 一_文化_好奇心日报-Gardiner Harris, Somini Sengupta and Anne Barnard](http://web.archive.org/web/20190623161943/https://www.qdaily.com/articles/15642.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3wbn97u0ej30u0ansu0z)

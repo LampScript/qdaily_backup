@@ -1,1 +1,3 @@
+好奇心原文链接：[独生子女政策结束了，我们通过历史上的报道回顾这个人类的空前实验_文化_好奇心日报-Russell Goldman, Patrick Boehler, Han Suyin 等](https://www.qdaily.com/articles/16878.html)
+WebArchive归档链接：[独生子女政策结束了，我们通过历史上的报道回顾这个人类的空前实验_文化_好奇心日报-Russell Goldman, Patrick Boehler, Han Suyin 等](http://web.archive.org/web/20190623164744/https://www.qdaily.com/articles/16878.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3wh95b8lyj30u0a2bu0y)

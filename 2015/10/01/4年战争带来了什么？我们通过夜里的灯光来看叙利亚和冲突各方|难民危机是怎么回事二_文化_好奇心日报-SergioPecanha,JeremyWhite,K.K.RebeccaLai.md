@@ -1,1 +1,3 @@
+好奇心原文链接：[4 年战争带来了什么？我们通过夜里的灯光来看叙利亚和冲突各方 | 难民危机是怎么回事 二_文化_好奇心日报-Sergio Pecanha, Jeremy White, K.K. Rebecca Lai](https://www.qdaily.com/articles/15649.html)
+WebArchive归档链接：[4 年战争带来了什么？我们通过夜里的灯光来看叙利亚和冲突各方 | 难民危机是怎么回事 二_文化_好奇心日报-Sergio Pecanha, Jeremy White, K.K. Rebecca Lai](http://web.archive.org/web/20171009173156/http://www.qdaily.com:80/articles/15649.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3w5bjyhb5j30p6cn3b2a)

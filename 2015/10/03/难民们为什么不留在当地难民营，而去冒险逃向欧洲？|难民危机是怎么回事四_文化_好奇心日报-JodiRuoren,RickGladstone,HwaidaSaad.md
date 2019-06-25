@@ -1,1 +1,3 @@
+好奇心原文链接：[难民们为什么不留在当地难民营，而去冒险逃向欧洲？ | 难民危机是怎么回事 四_文化_好奇心日报-Jodi Ruoren, Rick Gladstone, Hwaida Saad](https://www.qdaily.com/articles/15652.html)
+WebArchive归档链接：[难民们为什么不留在当地难民营，而去冒险逃向欧洲？ | 难民危机是怎么回事 四_文化_好奇心日报-Jodi Ruoren, Rick Gladstone, Hwaida Saad](http://web.archive.org/web/20190623161959/https://www.qdaily.com/articles/15652.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3wgc0ccoqj30u0cn41kz)

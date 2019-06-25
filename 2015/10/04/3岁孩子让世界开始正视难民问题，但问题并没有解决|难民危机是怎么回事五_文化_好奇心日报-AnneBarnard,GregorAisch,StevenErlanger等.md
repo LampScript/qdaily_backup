@@ -1,1 +1,3 @@
+好奇心原文链接：[3 岁孩子让世界开始正视难民问题，但问题并没有解决 | 难民危机是怎么回事 五_文化_好奇心日报-Anne Barnard, Gregor Aisch, Steven Erlanger 等](https://www.qdaily.com/articles/15674.html)
+WebArchive归档链接：[3 岁孩子让世界开始正视难民问题，但问题并没有解决 | 难民危机是怎么回事 五_文化_好奇心日报-Anne Barnard, Gregor Aisch, Steven Erlanger 等](http://web.archive.org/web/20190623161949/https://www.qdaily.com/articles/15674.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3w5e1yiozj30u0byiu0z)

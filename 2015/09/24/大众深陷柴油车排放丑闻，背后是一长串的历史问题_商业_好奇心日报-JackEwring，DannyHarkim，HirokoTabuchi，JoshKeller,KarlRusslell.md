@@ -1,1 +1,3 @@
+好奇心原文链接：[大众深陷柴油车排放丑闻，背后是一长串的历史问题_商业_好奇心日报-Jack Ewring，Danny Harkim，Hiroko Tabuchi，Josh Keller, Karl Russlell](https://www.qdaily.com/articles/15508.html)
+WebArchive归档链接：[大众深陷柴油车排放丑闻，背后是一长串的历史问题_商业_好奇心日报-Jack Ewring，Danny Harkim，Hiroko Tabuchi，Josh Keller, Karl Russlell](http://web.archive.org/web/20190623161718/https://www.qdaily.com/articles/15508.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3w51f6rjvj30u0aele83)
