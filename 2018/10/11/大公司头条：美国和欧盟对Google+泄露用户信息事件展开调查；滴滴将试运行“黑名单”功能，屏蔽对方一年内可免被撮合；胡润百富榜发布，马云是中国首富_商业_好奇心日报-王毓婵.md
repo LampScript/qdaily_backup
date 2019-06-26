@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：美国和欧盟对 Google+ 泄露用户信息事件展开调查；滴滴将试运行“黑名单”功能，屏蔽对方一年内可免被撮合；胡润百富榜发布，马云是中国首富_商业_好奇心日报-王毓婵](https://www.qdaily.com/articles/57179.html)
+WebArchive归档链接：[大公司头条：美国和欧盟对 Google+ 泄露用户信息事件展开调查；滴滴将试运行“黑名单”功能，屏蔽对方一年内可免被撮合；胡润百富榜发布，马云是中国首富_商业_好奇心日报-王毓婵](http://web.archive.org/web/20181012214919/http://www.qdaily.com:80/articles/57179.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y4ve6hdcj30u05wge82)

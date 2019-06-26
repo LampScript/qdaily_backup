@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：子弹短信上线 50 天后被 iOS App Store 下架；十一期间全国有1.3 亿人次乘火车出行，同比增长 10.8%；英特尔发布三款新处理器_商业_好奇心日报-王毓婵](https://www.qdaily.com/articles/57093.html)
+WebArchive归档链接：[大公司头条：子弹短信上线 50 天后被 iOS App Store 下架；十一期间全国有1.3 亿人次乘火车出行，同比增长 10.8%；英特尔发布三款新处理器_商业_好奇心日报-王毓婵](http://web.archive.org/web/20181012213647/http://www.qdaily.com:80/articles/57093.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y4nossdrj30u05kbb2a)

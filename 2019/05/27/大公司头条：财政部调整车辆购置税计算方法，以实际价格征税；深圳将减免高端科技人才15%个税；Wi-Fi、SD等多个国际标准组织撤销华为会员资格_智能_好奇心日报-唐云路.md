@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：财政部调整车辆购置税计算方法，以实际价格征税；深圳将减免高端科技人才 15% 个税；Wi-Fi、SD 等多个国际标准组织撤销华为会员资格_智能_好奇心日报-唐云路](https://www.qdaily.com/articles/64063.html)
+WebArchive归档链接：[大公司头条：财政部调整车辆购置税计算方法，以实际价格征税；深圳将减免高端科技人才 15% 个税；Wi-Fi、SD 等多个国际标准组织撤销华为会员资格_智能_好奇心日报-唐云路](http://web.archive.org/web/20190618040308/http://www.qdaily.com/articles/64063.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xy16iuppj30u048cqv5)

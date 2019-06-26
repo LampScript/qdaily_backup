@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：联通和华为建 6000公里海底光缆，从非洲连接南美洲；Facebook 每个月有 20 亿人使用；欧盟裁定 Google 要支付 24 亿欧元反垄断罚款，Google 将上诉_智能_好奇心日报-马若飞](https://www.qdaily.com/articles/42455.html)
+WebArchive归档链接：[大公司头条：联通和华为建 6000公里海底光缆，从非洲连接南美洲；Facebook 每个月有 20 亿人使用；欧盟裁定 Google 要支付 24 亿欧元反垄断罚款，Google 将上诉_智能_好奇心日报-马若飞](http://web.archive.org/web/20171114211852/http://www.qdaily.com/articles/42455.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xud3trsij30u04g8u0x)

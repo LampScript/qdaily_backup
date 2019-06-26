@@ -1,1 +1,3 @@
+好奇心原文链接：[生活在 Google 游戏世界里的中国玩家们_游戏_好奇心日报-崔绮雯 ](https://www.qdaily.com/articles/8676.html)
+WebArchive归档链接：[生活在 Google 游戏世界里的中国玩家们_游戏_好奇心日报-崔绮雯 ](http://web.archive.org/web/20180123201443/http://www.qdaily.com:80/articles/8676.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDpgy1g3vdo6luz3j30u0a58kjm)

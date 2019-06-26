@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：苹果未来 5 年搬 2450 亿美元回美国，新建办公园区；东航海航今起可在航班上使用手机，需开飞行模式；Google 在深圳设立新办公室，和硬件业务有关_商业_好奇心日报-周韶宏](https://www.qdaily.com/articles/49345.html)
+WebArchive归档链接：[大公司头条：苹果未来 5 年搬 2450 亿美元回美国，新建办公园区；东航海航今起可在航班上使用手机，需开飞行模式；Google 在深圳设立新办公室，和硬件业务有关_商业_好奇心日报-周韶宏](http://web.archive.org/web/20181001155640/http://www.qdaily.com:80/articles/49345.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xykqlmauj30u046snpd)

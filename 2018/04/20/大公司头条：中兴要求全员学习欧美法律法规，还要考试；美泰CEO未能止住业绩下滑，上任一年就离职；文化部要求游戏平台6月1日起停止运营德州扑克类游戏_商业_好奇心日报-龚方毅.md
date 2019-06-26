@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：中兴要求全员学习欧美法律法规，还要考试；美泰 CEO 未能止住业绩下滑，上任一年就离职；文化部要求游戏平台 6 月 1 日起停止运营德州扑克类游戏_商业_好奇心日报-龚方毅](https://www.qdaily.com/articles/52348.html)
+WebArchive归档链接：[大公司头条：中兴要求全员学习欧美法律法规，还要考试；美泰 CEO 未能止住业绩下滑，上任一年就离职；文化部要求游戏平台 6 月 1 日起停止运营德州扑克类游戏_商业_好奇心日报-龚方毅](http://web.archive.org/web/20181001165533/http://www.qdaily.com:80/articles/52348.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3ye14hm8bj30u03z1qv5)

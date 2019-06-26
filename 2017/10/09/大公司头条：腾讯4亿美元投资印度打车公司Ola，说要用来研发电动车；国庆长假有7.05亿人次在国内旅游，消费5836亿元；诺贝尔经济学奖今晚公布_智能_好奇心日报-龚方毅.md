@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：腾讯 4 亿美元投资印度打车公司 Ola，说要用来研发电动车；国庆长假有 7.05 亿人次在国内旅游，消费 5836 亿元；诺贝尔经济学奖今晚公布_智能_好奇心日报-龚方毅](https://www.qdaily.com/articles/45896.html)
+WebArchive归档链接：[大公司头条：腾讯 4 亿美元投资印度打车公司 Ola，说要用来研发电动车；国庆长假有 7.05 亿人次在国内旅游，消费 5836 亿元；诺贝尔经济学奖今晚公布_智能_好奇心日报-龚方毅](http://web.archive.org/web/20180923185520/http://www.qdaily.com:80/articles/45896.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3yhvrka76j30u03bfe81)

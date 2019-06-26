@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：苹果 macOS 系统出现严重低级漏洞，修复补丁已放出；文化部抽取 50 款手机游戏，称要进行“全身体检”；红黄蓝在美被起诉，理由是误导以及未能预防_智能_好奇心日报-张智伟](https://www.qdaily.com/articles/47753.html)
+WebArchive归档链接：[大公司头条：苹果 macOS 系统出现严重低级漏洞，修复补丁已放出；文化部抽取 50 款手机游戏，称要进行“全身体检”；红黄蓝在美被起诉，理由是误导以及未能预防_智能_好奇心日报-张智伟](http://web.archive.org/web/20181001022628/http://www.qdaily.com:80/articles/47753.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y53ozrddj30u05xd7wi)

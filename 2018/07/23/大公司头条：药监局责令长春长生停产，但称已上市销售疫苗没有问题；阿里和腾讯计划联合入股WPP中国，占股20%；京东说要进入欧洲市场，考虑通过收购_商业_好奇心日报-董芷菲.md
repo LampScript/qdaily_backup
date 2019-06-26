@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：药监局责令长春长生停产，但称已上市销售疫苗没有问题；阿里和腾讯计划联合入股 WPP 中国，占股 20%；京东说要进入欧洲市场，考虑通过收购_商业_好奇心日报-董芷菲](https://www.qdaily.com/articles/55494.html)
+WebArchive归档链接：[大公司头条：药监局责令长春长生停产，但称已上市销售疫苗没有问题；阿里和腾讯计划联合入股 WPP 中国，占股 20%；京东说要进入欧洲市场，考虑通过收购_商业_好奇心日报-董芷菲](http://web.archive.org/web/20180726091235/http://www.qdaily.com:80/articles/55494.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y138yw3cj30u04m6npd)

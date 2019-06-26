@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：腾讯和亚马逊 3 亿美元投资 Android 之父的手机公司；万达内部倒腾，港股公司的地产项目转移到内地公司；阿里要开线下家居零售店，会像小号宜家_商业_好奇心日报-周韶宏](https://www.qdaily.com/articles/43938.html)
+WebArchive归档链接：[大公司头条：腾讯和亚马逊 3 亿美元投资 Android 之父的手机公司；万达内部倒腾，港股公司的地产项目转移到内地公司；阿里要开线下家居零售店，会像小号宜家_商业_好奇心日报-周韶宏](http://web.archive.org/web/20171014154941/http://www.qdaily.com:80/articles/43938.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3yapgpmbnj30u03sthdt)

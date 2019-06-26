@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：阿里巴巴 20 亿投资酒类电商 1919，成为第二大股东；京东推美国版，将入驻 Google Shopping 开旗舰店；北京提出 19 条措施发展便利店，可开进地铁、医院_商业_好奇心日报-董芷菲](https://www.qdaily.com/articles/57483.html)
+WebArchive归档链接：[大公司头条：阿里巴巴 20 亿投资酒类电商 1919，成为第二大股东；京东推美国版，将入驻 Google Shopping 开旗舰店；北京提出 19 条措施发展便利店，可开进地铁、医院_商业_好奇心日报-董芷菲](http://web.archive.org/web/20181022033532/http://www.qdaily.com:80/articles/57483.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y5iy6srwj30u03y9kjl)

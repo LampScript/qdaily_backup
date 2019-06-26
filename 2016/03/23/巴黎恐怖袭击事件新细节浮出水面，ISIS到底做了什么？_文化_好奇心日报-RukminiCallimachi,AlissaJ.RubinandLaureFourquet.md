@@ -1,1 +1,3 @@
+好奇心原文链接：[巴黎恐怖袭击事件新细节浮出水面，ISIS到底做了什么？_文化_好奇心日报-Rukmini Callimachi, Alissa J. Rubin and Laure Fourquet](https://www.qdaily.com/articles/24311.html)
+WebArchive归档链接：[巴黎恐怖袭击事件新细节浮出水面，ISIS到底做了什么？_文化_好奇心日报-Rukmini Callimachi, Alissa J. Rubin and Laure Fourquet](http://web.archive.org/web/20160805223409/http://www.qdaily.com/articles/24311.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3x6ej6ld3j30u09hqqv7)

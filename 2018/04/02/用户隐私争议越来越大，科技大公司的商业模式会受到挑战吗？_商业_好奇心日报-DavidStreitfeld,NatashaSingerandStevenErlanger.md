@@ -1,1 +1,3 @@
+好奇心原文链接：[用户隐私争议越来越大，科技大公司的商业模式会受到挑战吗？_商业_好奇心日报-David Streitfeld, Natasha Singer and Steven Erlanger](https://www.qdaily.com/articles/51536.html)
+WebArchive归档链接：[用户隐私争议越来越大，科技大公司的商业模式会受到挑战吗？_商业_好奇心日报-David Streitfeld, Natasha Singer and Steven Erlanger](http://web.archive.org/web/20181009093448/http://www.qdaily.com:80/articles/51536.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y39bke4ej30u06bnkjm)

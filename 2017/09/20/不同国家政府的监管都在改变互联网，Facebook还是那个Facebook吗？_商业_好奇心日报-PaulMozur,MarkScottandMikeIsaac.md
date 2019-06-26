@@ -1,1 +1,3 @@
+好奇心原文链接：[不同国家政府的监管都在改变互联网，Facebook 还是那个 Facebook 吗？_商业_好奇心日报-Paul Mozur, Mark Scott and Mike Isaac](https://www.qdaily.com/articles/45342.html)
+WebArchive归档链接：[不同国家政府的监管都在改变互联网，Facebook 还是那个 Facebook 吗？_商业_好奇心日报-Paul Mozur, Mark Scott and Mike Isaac](http://web.archive.org/web/20180430093657/http://www.qdaily.com:80/articles/45342.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xzg5x30fj30u0bzfnpi)

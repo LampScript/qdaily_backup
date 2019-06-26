@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：新一代 iPhone 可能采用 USB-C 接口及曲面屏；蚂蚁金服投资了国内公共自行车厂商“永安行”，也要做共享单车；腾讯要投资 12 亿元给自媒体_智能_好奇心日报-朱若淼](https://www.qdaily.com/articles/38286.html)
+WebArchive归档链接：[大公司头条：新一代 iPhone 可能采用 USB-C 接口及曲面屏；蚂蚁金服投资了国内公共自行车厂商“永安行”，也要做共享单车；腾讯要投资 12 亿元给自媒体_智能_好奇心日报-朱若淼](http://web.archive.org/web/20170307003323/http://www.qdaily.com:80/articles/38286.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3x1dlyvz3j30u03w0e81)

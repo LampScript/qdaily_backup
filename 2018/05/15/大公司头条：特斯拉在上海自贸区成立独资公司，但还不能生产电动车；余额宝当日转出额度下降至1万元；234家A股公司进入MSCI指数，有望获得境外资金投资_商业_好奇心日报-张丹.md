@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：特斯拉在上海自贸区成立独资公司，但还不能生产电动车；余额宝当日转出额度下降至 1 万元；234 家 A 股公司进入 MSCI 指数，有望获得境外资金投资_商业_好奇心日报-张丹](https://www.qdaily.com/articles/53158.html)
+WebArchive归档链接：[大公司头条：特斯拉在上海自贸区成立独资公司，但还不能生产电动车；余额宝当日转出额度下降至 1 万元；234 家 A 股公司进入 MSCI 指数，有望获得境外资金投资_商业_好奇心日报-张丹](http://web.archive.org/web/20180922194811/http://www.qdaily.com:80/articles/53158.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xuy35l1sj30u04h1x6p)

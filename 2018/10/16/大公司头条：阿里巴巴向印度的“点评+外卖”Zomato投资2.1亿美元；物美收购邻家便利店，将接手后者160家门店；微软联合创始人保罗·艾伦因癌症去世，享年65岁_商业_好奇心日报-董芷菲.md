@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：阿里巴巴向印度的“点评+外卖”Zomato 投资 2.1 亿美元；物美收购邻家便利店，将接手后者 160 家门店；微软联合创始人保罗·艾伦因癌症去世，享年 65 岁_商业_好奇心日报-董芷菲](https://www.qdaily.com/articles/57343.html)
+WebArchive归档链接：[大公司头条：阿里巴巴向印度的“点评+外卖”Zomato 投资 2.1 亿美元；物美收购邻家便利店，将接手后者 160 家门店；微软联合创始人保罗·艾伦因癌症去世，享年 65 岁_商业_好奇心日报-董芷菲](http://web.archive.org/web/20181020000449/http://www.qdaily.com:80/articles/57343.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y57n5gnzj30u03zae81)

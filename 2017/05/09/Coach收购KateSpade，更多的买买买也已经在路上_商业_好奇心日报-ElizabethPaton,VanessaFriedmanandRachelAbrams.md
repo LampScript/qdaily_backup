@@ -1,1 +1,3 @@
+好奇心原文链接：[Coach 收购 Kate Spade，更多的买买买也已经在路上_商业_好奇心日报-Elizabeth Paton, Vanessa Friedman and Rachel Abrams](https://www.qdaily.com/articles/40599.html)
+WebArchive归档链接：[Coach 收购 Kate Spade，更多的买买买也已经在路上_商业_好奇心日报-Elizabeth Paton, Vanessa Friedman and Rachel Abrams](http://web.archive.org/web/20170521034043/http://www.qdaily.com:80/articles/40599.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y8fz4m1xj30u043lb2a)

@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：微信、微博和百度贴吧被罚款，因为言论管得还不够严；苹果放慢 iPhone X 的生产速度，零件订货量减少 60%；智联招聘将从美股退市_商业_好奇心日报-徐弢](https://www.qdaily.com/articles/45548.html)
+WebArchive归档链接：[大公司头条：微信、微博和百度贴吧被罚款，因为言论管得还不够严；苹果放慢 iPhone X 的生产速度，零件订货量减少 60%；智联招聘将从美股退市_商业_好奇心日报-徐弢](http://web.archive.org/web/20170929103442/http://www.qdaily.com:80/articles/45548.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3wisrdycnj30u04e5npd)

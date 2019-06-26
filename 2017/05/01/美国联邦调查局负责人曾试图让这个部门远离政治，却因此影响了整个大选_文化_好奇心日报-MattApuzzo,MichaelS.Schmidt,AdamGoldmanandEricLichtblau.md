@@ -1,1 +1,3 @@
+好奇心原文链接：[美国联邦调查局负责人曾试图让这个部门远离政治，却因此影响了整个大选_文化_好奇心日报-Matt Apuzzo, Michael S. Schmidt, Adam Goldman and Eric Lichtblau](https://www.qdaily.com/articles/40304.html)
+WebArchive归档链接：[美国联邦调查局负责人曾试图让这个部门远离政治，却因此影响了整个大选_文化_好奇心日报-Matt Apuzzo, Michael S. Schmidt, Adam Goldman and Eric Lichtblau](http://web.archive.org/web/20180916055623/http://www.qdaily.com:80/articles/40304.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xowjg04dj30hwcmuu16)

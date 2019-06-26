@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：击败围棋冠军的神秘棋手 Master 确认是人工智能 AlphaGo；摩拜单车又融资 2 亿多美元，投资者包括腾讯和携程；阿里 13 亿港元投资物流公司日日顺_智能_好奇心日报-张智伟](https://www.qdaily.com/articles/36422.html)
+WebArchive归档链接：[大公司头条：击败围棋冠军的神秘棋手 Master 确认是人工智能 AlphaGo；摩拜单车又融资 2 亿多美元，投资者包括腾讯和携程；阿里 13 亿港元投资物流公司日日顺_智能_好奇心日报-张智伟](http://web.archive.org/web/20170105205133/http://www.qdaily.com:80/articles/36422.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xq6ghagjj30u03k0e81)

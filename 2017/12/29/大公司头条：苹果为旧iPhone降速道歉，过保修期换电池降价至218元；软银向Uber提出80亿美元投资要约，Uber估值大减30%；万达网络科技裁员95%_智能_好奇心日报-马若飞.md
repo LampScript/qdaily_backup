@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：苹果为旧 iPhone 降速道歉，过保修期换电池降价至 218 元；软银向 Uber 提出 80 亿美元投资要约，Uber 估值大减 30%；万达网络科技裁员 95%_智能_好奇心日报-马若飞](https://www.qdaily.com/articles/48712.html)
+WebArchive归档链接：[大公司头条：苹果为旧 iPhone 降速道歉，过保修期换电池降价至 218 元；软银向 Uber 提出 80 亿美元投资要约，Uber 估值大减 30%；万达网络科技裁员 95%_智能_好奇心日报-马若飞](http://web.archive.org/web/20181009091343/http://www.qdaily.com:80/articles/48712.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3yb4ur1mxj30u03tskjl)

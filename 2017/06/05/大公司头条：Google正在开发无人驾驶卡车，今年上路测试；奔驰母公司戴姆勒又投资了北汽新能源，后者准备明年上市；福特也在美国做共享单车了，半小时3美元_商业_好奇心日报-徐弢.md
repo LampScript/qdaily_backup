@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：Google 正在开发无人驾驶卡车，今年上路测试；奔驰母公司戴姆勒又投资了北汽新能源，后者准备明年上市；福特也在美国做共享单车了，半小时 3 美元_商业_好奇心日报-徐弢](https://www.qdaily.com/articles/41625.html)
+WebArchive归档链接：[大公司头条：Google 正在开发无人驾驶卡车，今年上路测试；奔驰母公司戴姆勒又投资了北汽新能源，后者准备明年上市；福特也在美国做共享单车了，半小时 3 美元_商业_好奇心日报-徐弢](http://web.archive.org/web/20170612182040/http://www.qdaily.com/articles/41625.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xsj5ippcj30u0365e81)

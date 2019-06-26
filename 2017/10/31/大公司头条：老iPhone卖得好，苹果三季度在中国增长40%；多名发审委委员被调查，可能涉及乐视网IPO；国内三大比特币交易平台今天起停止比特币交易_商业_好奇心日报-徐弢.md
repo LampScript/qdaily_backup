@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：老 iPhone 卖得好，苹果三季度在中国增长 40%；多名发审委委员被调查，可能涉及乐视网 IPO；国内三大比特币交易平台今天起停止比特币交易_商业_好奇心日报-徐弢](https://www.qdaily.com/articles/46693.html)
+WebArchive归档链接：[大公司头条：老 iPhone 卖得好，苹果三季度在中国增长 40%；多名发审委委员被调查，可能涉及乐视网 IPO；国内三大比特币交易平台今天起停止比特币交易_商业_好奇心日报-徐弢](http://web.archive.org/web/20180916054518/http://www.qdaily.com:80/articles/46693.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y2lu6gycj30u042tu0x)

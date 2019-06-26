@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：网易云音乐回应音乐下架，称要跟腾讯谈价格；马斯克的人工智能在 Dota 2 比赛中战胜人类冠军；Facebook 疑似在中国推出图片社交应用“彩色气球”_智能_好奇心日报-马若飞](https://www.qdaily.com/articles/44048.html)
+WebArchive归档链接：[大公司头条：网易云音乐回应音乐下架，称要跟腾讯谈价格；马斯克的人工智能在 Dota 2 比赛中战胜人类冠军；Facebook 疑似在中国推出图片社交应用“彩色气球”_智能_好奇心日报-马若飞](http://web.archive.org/web/20181001160351/http://www.qdaily.com:80/articles/44048.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xvw1oxxuj30u04g0u0x)

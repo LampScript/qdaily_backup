@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：腾讯的人工智能算法获得日本机器人围棋比赛冠军，但 AlphaGo 没有参赛；上任不到 7 个月的 Uber 总裁离职；乐视汽车创始人丁磊确认离职_商业_好奇心日报-周韶宏](https://www.qdaily.com/articles/38955.html)
+WebArchive归档链接：[大公司头条：腾讯的人工智能算法获得日本机器人围棋比赛冠军，但 AlphaGo 没有参赛；上任不到 7 个月的 Uber 总裁离职；乐视汽车创始人丁磊确认离职_商业_好奇心日报-周韶宏](http://web.archive.org/web/20170911162215/http://www.qdaily.com/articles/38955.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3x7ghbpqxj30u0456e81)

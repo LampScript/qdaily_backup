@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：腾讯音乐预计明年上市，要和 Spotify 换股 10%；乌镇互联网大会开幕，苹果和 Google CEO 都来谈就业；美国国会通过特朗普税改法案，企业税率降至 20%_商业_好奇心日报-徐弢](https://www.qdaily.com/articles/47877.html)
+WebArchive归档链接：[大公司头条：腾讯音乐预计明年上市，要和 Spotify 换股 10%；乌镇互联网大会开幕，苹果和 Google CEO 都来谈就业；美国国会通过特朗普税改法案，企业税率降至 20%_商业_好奇心日报-徐弢](http://web.archive.org/web/20180312091515/http://www.qdaily.com:80/articles/47877.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y5cgcsfaj30u04cbx6p)

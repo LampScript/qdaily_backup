@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：腾讯控股的公司拿到保险牌照，将通过微信卖保险；iPhone X 仍面临生产延期，因为前摄像头组件生产困难；汉莎航空出资 20 亿美元收购柏林航空_智能_好奇心日报-龚方毅](https://www.qdaily.com/articles/46064.html)
+WebArchive归档链接：[大公司头条：腾讯控股的公司拿到保险牌照，将通过微信卖保险；iPhone X 仍面临生产延期，因为前摄像头组件生产困难；汉莎航空出资 20 亿美元收购柏林航空_智能_好奇心日报-龚方毅](http://web.archive.org/web/20181001161912/http://www.qdaily.com:80/articles/46064.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y14svgqrj30u03ulnpd)

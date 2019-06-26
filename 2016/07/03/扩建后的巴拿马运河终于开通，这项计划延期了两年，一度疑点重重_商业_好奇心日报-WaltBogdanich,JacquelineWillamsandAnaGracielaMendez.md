@@ -1,1 +1,3 @@
+好奇心原文链接：[扩建后的巴拿马运河终于开通，这项计划延期了两年，一度疑点重重_商业_好奇心日报-Walt Bogdanich, Jacqueline Willams and Ana Graciela Mendez](https://www.qdaily.com/articles/28800.html)
+WebArchive归档链接：[扩建后的巴拿马运河终于开通，这项计划延期了两年，一度疑点重重_商业_好奇心日报-Walt Bogdanich, Jacqueline Willams and Ana Graciela Mendez](http://web.archive.org/web/20160709112728/http://www.qdaily.com:80/articles/28800.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3x7s5o8epj30jlcmm1l4)

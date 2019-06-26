@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：百度称开始评估 CDR 回 A 股可能性，但还没有时间表；万达电影重组，116 亿收购万达影视；恒大 56 亿入股贾跃亭汽车公司 FF，条件是年内批量生产_商业_好奇心日报-罗骢](https://www.qdaily.com/articles/54615.html)
+WebArchive归档链接：[大公司头条：百度称开始评估 CDR 回 A 股可能性，但还没有时间表；万达电影重组，116 亿收购万达影视；恒大 56 亿入股贾跃亭汽车公司 FF，条件是年内批量生产_商业_好奇心日报-罗骢](http://web.archive.org/web/20181001163548/http://www.qdaily.com:80/articles/54615.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3ybz3cunjj30u03p17wh)

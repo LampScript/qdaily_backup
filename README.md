@@ -2,21 +2,16 @@
 
 本项目启动于好奇心日报因喝茶后被停更3个月，万一关门好文章无法再重新检索，所以在 github 上做备份，供大家参阅。
 
-- [2014年目录](./README-2014.md)
-- [2015年目录](./README-2015.md)
-- [2016年目录](./README-2016.md)
-- [2017年目录](./README-2017.md)
-- [2018年目录](./README-2018.md)
-- [2019年目录](./README-2019.md)
-
-```
-暂时先给个百度云下载链接
-https://pan.baidu.com/s/1bDr6fenHfzm4m-WG7LNwrQ
-```
+- [2014年目录](./2014/years.md)
+- [2015年目录](./2015/years.md)
+- [2016年目录](./2016/years.md)
+- [2017年目录](./2017/years.md)
+- [2018年目录](./2018/years.md)
+- [2019年目录](./2019/years.md)
 
 ---
 
-今天刚正式得知好奇心收缩以求生存通告[关于好奇心日报|九点，我们会出现在镇上](http://notch.qdaily.com/mobile/posts/5059.html?from=timeline&isappinstalled=0) 
+[关于好奇心日报|九点，我们会出现在镇上](http://notch.qdaily.com/mobile/posts/5059.html?from=timeline&isappinstalled=0) 
 
 如果这是我们当代的悲哀，我想尽力阻止悲剧的发生。
 
@@ -24,3 +19,12 @@ https://pan.baidu.com/s/1bDr6fenHfzm4m-WG7LNwrQ
 
 ---
 我接下来会把这个项目维护得更好的。
+
+---
+更新日志
+
+### 2019.06.27
+- 所有的文章二次备份至互联网博物馆 https://web.archive.org
+- 将文章 html 备份至数据库中  
+- 重做首页目录
+- 取消百度云下载分享地址

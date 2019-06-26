@@ -1,1 +1,3 @@
+好奇心原文链接：[拜耳收购孟山都之后，受影响最大的农场主怎么看？_商业_好奇心日报-Leslie Picker, Danny Hakim and Michael J. de la Merced](https://www.qdaily.com/articles/32338.html)
+WebArchive归档链接：[拜耳收购孟山都之后，受影响最大的农场主怎么看？_商业_好奇心日报-Leslie Picker, Danny Hakim and Michael J. de la Merced](http://web.archive.org/web/20180926205349/http://www.qdaily.com:80/articles/32338.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xseivk2nj30u04vihdu)

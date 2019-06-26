@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：315 之后，互动百科说要改，支付宝否认了安全问题；和硕愿意把 iPhone 工厂搬到美国，但要求苹果出钱；麦当劳在美国测试手机 App 点餐支付功能_智能_好奇心日报-张智伟](https://www.qdaily.com/articles/38854.html)
+WebArchive归档链接：[大公司头条：315 之后，互动百科说要改，支付宝否认了安全问题；和硕愿意把 iPhone 工厂搬到美国，但要求苹果出钱；麦当劳在美国测试手机 App 点餐支付功能_智能_好奇心日报-张智伟](http://web.archive.org/web/20170318222038/http://www.qdaily.com:80/articles/38854.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3x2bkk1rlj30u03jy7wh)

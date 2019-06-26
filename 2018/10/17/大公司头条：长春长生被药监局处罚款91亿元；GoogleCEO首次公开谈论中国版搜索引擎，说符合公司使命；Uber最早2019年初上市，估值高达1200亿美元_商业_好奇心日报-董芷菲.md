@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：长春长生被药监局处罚款 91 亿元；Google CEO 首次公开谈论中国版搜索引擎，说符合公司使命；Uber 最早 2019 年初上市，估值高达 1200 亿美元_商业_好奇心日报-董芷菲](https://www.qdaily.com/articles/57386.html)
+WebArchive归档链接：[大公司头条：长春长生被药监局处罚款 91 亿元；Google CEO 首次公开谈论中国版搜索引擎，说符合公司使命；Uber 最早 2019 年初上市，估值高达 1200 亿美元_商业_好奇心日报-董芷菲](http://web.archive.org/web/20181020091717/http://www.qdaily.com:80/articles/57386.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3ye0t7yv7j30u03ytnpd)

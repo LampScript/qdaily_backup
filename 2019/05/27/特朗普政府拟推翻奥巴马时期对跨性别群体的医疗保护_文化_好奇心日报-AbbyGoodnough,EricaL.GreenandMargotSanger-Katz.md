@@ -1,1 +1,3 @@
+好奇心原文链接：[特朗普政府拟推翻奥巴马时期对跨性别群体的医疗保护_文化_好奇心日报-Abby Goodnough, Erica L. Green and Margot Sanger-Katz](https://www.qdaily.com/articles/64060.html)
+WebArchive归档链接：[特朗普政府拟推翻奥巴马时期对跨性别群体的医疗保护_文化_好奇心日报-Abby Goodnough, Erica L. Green and Margot Sanger-Katz](http://web.archive.org/web/20190618040301/http://www.qdaily.com/articles/64060.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3ybkji7rlj30u04lpx6p)

@@ -1,1 +1,3 @@
+好奇心原文链接：[Kura 啤酒包装_设计_好奇心日报-廖婷 ](https://www.qdaily.com/articles/20423.html)
+WebArchive归档链接：[Kura 啤酒包装_设计_好奇心日报-廖婷 ](http://web.archive.org/web/20190623162553/https://www.qdaily.com/articles/20423.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3w5qd0la4j30u03ath1l)

@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：亚马逊将关闭中国电商业务，只保留 Kindle、跨境贸易；日本立邦漆以 180 亿元收购多乐士集团；Uber 向日本财团出售自动驾驶部门 14%的股权_商业_好奇心日报-姚书恒](https://www.qdaily.com/articles/63056.html)
+WebArchive归档链接：[大公司头条：亚马逊将关闭中国电商业务，只保留 Kindle、跨境贸易；日本立邦漆以 180 亿元收购多乐士集团；Uber 向日本财团出售自动驾驶部门 14%的股权_商业_好奇心日报-姚书恒](http://web.archive.org/web/20190418012115/https://www.qdaily.com/articles/63056.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3yae6se1tj30u038eb29)

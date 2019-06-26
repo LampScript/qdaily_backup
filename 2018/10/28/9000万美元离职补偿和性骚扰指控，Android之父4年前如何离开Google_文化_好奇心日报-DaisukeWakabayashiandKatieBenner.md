@@ -1,1 +1,3 @@
+好奇心原文链接：[9000 万美元离职补偿和性骚扰指控，Android 之父 4 年前如何离开 Google_文化_好奇心日报-Daisuke Wakabayashi and Katie Benner](https://www.qdaily.com/articles/57746.html)
+WebArchive归档链接：[9000 万美元离职补偿和性骚扰指控，Android 之父 4 年前如何离开 Google_文化_好奇心日报-Daisuke Wakabayashi and Katie Benner](http://web.archive.org/web/20181028225259/https://www.qdaily.com/articles/57746.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y5vdmwafj30u09jpnph)

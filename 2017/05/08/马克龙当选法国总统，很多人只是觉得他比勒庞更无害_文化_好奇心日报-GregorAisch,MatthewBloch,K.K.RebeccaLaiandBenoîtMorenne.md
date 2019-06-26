@@ -1,1 +1,3 @@
+好奇心原文链接：[马克龙当选法国总统，很多人只是觉得他比勒庞更无害_文化_好奇心日报-Gregor Aisch, Matthew Bloch, K.K. Rebecca Lai and Benoît Morenne](https://www.qdaily.com/articles/40549.html)
+WebArchive归档链接：[马克龙当选法国总统，很多人只是觉得他比勒庞更无害_文化_好奇心日报-Gregor Aisch, Matthew Bloch, K.K. Rebecca Lai and Benoît Morenne](http://web.archive.org/web/20170612014627/http://www.qdaily.com:80/articles/40549.html?)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xpsopcd9j30u04ao1ky)

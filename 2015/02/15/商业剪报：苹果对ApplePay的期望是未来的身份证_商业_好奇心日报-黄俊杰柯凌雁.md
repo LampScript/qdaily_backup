@@ -1,1 +1,3 @@
+好奇心原文链接：[商业剪报：苹果对 Apple Pay 的期望是未来的身份证 _商业_好奇心日报-黄俊杰 柯凌雁](https://www.qdaily.com/articles/6269.html)
+WebArchive归档链接：[商业剪报：苹果对 Apple Pay 的期望是未来的身份证 _商业_好奇心日报-黄俊杰 柯凌雁](http://web.archive.org/web/20190623170155/https://www.qdaily.com/articles/6269.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3w9prvdo1j30u031se81)

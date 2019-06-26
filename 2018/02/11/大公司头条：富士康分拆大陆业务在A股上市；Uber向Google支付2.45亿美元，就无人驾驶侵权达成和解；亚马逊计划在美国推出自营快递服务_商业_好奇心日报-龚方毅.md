@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：富士康分拆大陆业务在 A 股上市；Uber 向 Google 支付 2.45 亿美元，就无人驾驶侵权达成和解；亚马逊计划在美国推出自营快递服务_商业_好奇心日报-龚方毅](https://www.qdaily.com/articles/50119.html)
+WebArchive归档链接：[大公司头条：富士康分拆大陆业务在 A 股上市；Uber 向 Google 支付 2.45 亿美元，就无人驾驶侵权达成和解；亚马逊计划在美国推出自营快递服务_商业_好奇心日报-龚方毅](http://web.archive.org/web/20180922200033/http://www.qdaily.com:80/articles/50119.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y06i1o8vj30u0489qv5)

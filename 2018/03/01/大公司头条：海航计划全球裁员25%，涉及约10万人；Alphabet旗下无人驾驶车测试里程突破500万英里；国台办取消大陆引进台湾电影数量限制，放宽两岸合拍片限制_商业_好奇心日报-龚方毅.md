@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：海航计划全球裁员 25%，涉及约 10 万人；Alphabet 旗下无人驾驶车测试里程突破 500 万英里；国台办取消大陆引进台湾电影数量限制，放宽两岸合拍片限制_商业_好奇心日报-龚方毅](https://www.qdaily.com/articles/50683.html)
+WebArchive归档链接：[大公司头条：海航计划全球裁员 25%，涉及约 10 万人；Alphabet 旗下无人驾驶车测试里程突破 500 万英里；国台办取消大陆引进台湾电影数量限制，放宽两岸合拍片限制_商业_好奇心日报-龚方毅](http://web.archive.org/web/20181009095447/http://www.qdaily.com:80/articles/50683.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y1bh2elej30u03n4kjl)

@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：亚马逊发财报，收购一个半月的全食贡献 13 亿美元营收；Google 三季度营收增长 24%，但买流量的钱也更多了；杭州限制网约车拼车，一天不能超过四次_智能_好奇心日报-张智伟](https://www.qdaily.com/articles/46572.html)
+WebArchive归档链接：[大公司头条：亚马逊发财报，收购一个半月的全食贡献 13 亿美元营收；Google 三季度营收增长 24%，但买流量的钱也更多了；杭州限制网约车拼车，一天不能超过四次_智能_好奇心日报-张智伟](http://web.archive.org/web/20181007180728/http://www.qdaily.com:80/articles/46572.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3yi7zkohvj30u04mtx6p)

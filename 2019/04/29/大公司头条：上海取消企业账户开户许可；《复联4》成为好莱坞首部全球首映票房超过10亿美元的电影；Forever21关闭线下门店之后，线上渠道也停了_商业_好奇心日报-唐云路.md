@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：上海取消企业账户开户许可；《复联 4》成为好莱坞首部全球首映票房超过 10 亿美元的电影；Forever21 关闭线下门店之后，线上渠道也停了_商业_好奇心日报-唐云路](https://www.qdaily.com/articles/63364.html)
+WebArchive归档链接：[大公司头条：上海取消企业账户开户许可；《复联 4》成为好莱坞首部全球首映票房超过 10 亿美元的电影；Forever21 关闭线下门店之后，线上渠道也停了_商业_好奇心日报-唐云路](http://web.archive.org/web/20190429021034/https://www.qdaily.com/articles/63364.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3yat97wchj30u03o5hdt)

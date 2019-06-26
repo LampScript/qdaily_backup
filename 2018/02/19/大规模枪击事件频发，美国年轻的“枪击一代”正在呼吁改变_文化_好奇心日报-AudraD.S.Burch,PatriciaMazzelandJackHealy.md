@@ -1,1 +1,3 @@
+好奇心原文链接：[大规模枪击事件频发，美国年轻的“枪击一代”正在呼吁改变_文化_好奇心日报-Audra D. S. Burch, Patricia Mazzel and Jack Healy](https://www.qdaily.com/articles/50411.html)
+WebArchive归档链接：[大规模枪击事件频发，美国年轻的“枪击一代”正在呼吁改变_文化_好奇心日报-Audra D. S. Burch, Patricia Mazzel and Jack Healy](http://web.archive.org/web/20180629012001/http://www.qdaily.com:80/articles/50411.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y0pf9hauj30u05cihdu)

@@ -1,1 +1,3 @@
+好奇心原文链接：[大公司头条：iPhone X 卖得不错，苹果去年最后一季收入大涨12.7%；UC 头条的社会等四个频道下架一周整改；阿里巴巴季度收入创历史新高，同时入股蚂蚁金服 33%_商业_好奇心日报-杨宽](https://www.qdaily.com/articles/49856.html)
+WebArchive归档链接：[大公司头条：iPhone X 卖得不错，苹果去年最后一季收入大涨12.7%；UC 头条的社会等四个频道下架一周整改；阿里巴巴季度收入创历史新高，同时入股蚂蚁金服 33%_商业_好奇心日报-杨宽](http://web.archive.org/web/20180916053644/http://www.qdaily.com:80/articles/49856.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xzoq0lcfj30u05y7e82)

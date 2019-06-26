@@ -1,1 +1,3 @@
+好奇心原文链接：[耐克女员工领导“叛乱”，导致多名男性高管仓促离职，这是怎么回事？_商业_好奇心日报-Julie Creswell, Kevin Draper and Rachel Abrams](https://www.qdaily.com/articles/52753.html)
+WebArchive归档链接：[耐克女员工领导“叛乱”，导致多名男性高管仓促离职，这是怎么回事？_商业_好奇心日报-Julie Creswell, Kevin Draper and Rachel Abrams](http://web.archive.org/web/20180923190228/http://www.qdaily.com:80/articles/52753.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3y60ire8mj30u0a01e85)

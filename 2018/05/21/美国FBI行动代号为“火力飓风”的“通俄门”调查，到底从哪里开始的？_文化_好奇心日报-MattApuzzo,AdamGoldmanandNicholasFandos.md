@@ -1,1 +1,3 @@
+好奇心原文链接：[美国 FBI 行动代号为“火力飓风”的“通俄门”调查，到底从哪里开始的？_文化_好奇心日报-Matt Apuzzo, Adam Goldman and Nicholas Fandos](https://www.qdaily.com/articles/53375.html)
+WebArchive归档链接：[美国 FBI 行动代号为“火力飓风”的“通俄门”调查，到底从哪里开始的？_文化_好奇心日报-Matt Apuzzo, Adam Goldman and Nicholas Fandos](http://web.archive.org/web/20190623185931/https://www.qdaily.com/articles/53375.html)
 ![image](http://ww3.sinaimg.cn/large/007d5XDply1g3xvufqj8ej30u0blmhdx)
